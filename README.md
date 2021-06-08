@@ -17,6 +17,6 @@ Nhóm 6:
       
 Thông tin liên hệ:
 
-      FB: https://www.facebook.com/iris.ntt1812
+      FB: https://www.facebook.com/iris.decembre
       
       Gmail: 18126002@student.hcmus.edu.vn
